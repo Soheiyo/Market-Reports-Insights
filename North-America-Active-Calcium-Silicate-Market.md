@@ -1,6 +1,6 @@
 # North America Active Calcium Silicate Market Growth & Trends 2025 - 2031
 
-<Strong> Active Calcium Silicate Market Overview 2025 - 2031</strong><h2>
+<Strong> Active Calcium Silicate Market Overview 2025 - 2031</strong>
 
 The rising technology in Active Calcium Silicate Market is also depicted in this research report. Factors that are boosting the growth of the market, and giving a positive push to thrive in the global market is explained in detail.
 
